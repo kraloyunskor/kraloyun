@@ -1,1 +1,1 @@
-# kraloyun.github.io
+# kraloyunskor.github.io
